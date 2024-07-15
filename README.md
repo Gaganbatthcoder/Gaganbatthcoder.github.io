@@ -2,5 +2,5 @@
 ##activity report of student induction program 2024
 |Syntax| |description |
 |--------| |-----------|
-|date|15/07/24|
+|date| |15/07/24|
 |description | The day I live|
