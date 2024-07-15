@@ -3,4 +3,4 @@
 |date| |resouce person| |description|
 |-------| |------------| |------------|
 |-------| |------------| |------------|
-|15 july| |dr papyare lal garg| |he told us important information|
+|15 july| |dr payare lal garg| |he told us important information|
