@@ -1,6 +1,6 @@
 # Gaganbatthcoder.github.io
 ##activity report of student induction program 2024
-|date|name of person |detail|
+|**date**|**name of person**|**detail**|
 | -------- | ---------- | ------|
 |14/07/24 | **SANCHIT SIR** | Firstly sir introduces himself and one by one he took the introduction of the students of CSB. after that sir taught us the basucs of differential equations the formulas and some questions related to them. sir has also provided us a short idea about the subjects which will be included in our 1st as well as 2nd semester.|
 |14/07/24 | **PROF JASMINE KAUR** | Mam has introduced us with a subject name uhv (universal human values) she taught us about the happiness and the other. the overall keytakes about the lecture was human is like an animal he always need more and more. she also enlight about the problems in relationship because now a days we do not give time to our relations . she also gave a lesson that we should be happy with what we have |
