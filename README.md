@@ -1,6 +1,6 @@
 # Gaganbatthcoder.github.io
 ##activity report of student induction program 2024
-|**date**|**name of person**|**detail**|
+|**DATE**|**NAME OF PERSON**|**DETAIL**|
 | -------- | ---------- | ------|
 |11/07/24| ***DR ARVIND DHINGRA*** | Sir give a being description on the various clubs of college which are either credited or non credited they told us about the activities done in each club like cosmic club, ncc,nss, cultural etc. sir has well explained this with a beautiful powerpoint presentation. then for the entertainment sir played a game with students in which they have to hold each others hand and have to escape without leaving hands. In this game the boys team won and then sir told everyone on stage to introduces themself. Sir id very nice and frinedly.|
 |11/07/24| ***DR PARMINDER SINGH*** | Sir has well introduced us with the campus. it includes the details of hostel,library,clubs,canteens etc. sir has provided details realted to every concept like number of hostels adn bokks present in library, the clubs , number of canteens , shop and many more |
@@ -19,6 +19,6 @@
 |18/07/24| ***DR HARWINDER SINGH*** | sir is the head of ncc team of the college. he had provided us a breif description of ncc(national cadet corps). there are 2 branches in ncc one with armed force and the other is air wing. sir is head of armed force. sir showed us a ppt in which there was a proper detail of ncc like the scholarships or various other awards. sir told that the expense of this team is done by the government of india even the refreshments and uniform too. every year 1 camp is organised in the college . the cadets had given the training of shooting, clearing the difficulties and many more. this is a 3 year course |
 |18/07/24| ***ER. JASVIR SINGH GREWAL*** | Sir is leading the nss (national service scheme). sir provides us the detail of this scheme like the various camps organised, the social works done by the team. sir also told us that the needy children whose blood is changed soon their team also help them. also sir motivated students to plant trees. not only planting but taking care of those trees is also crucial. recently sir and this team plants 3000+ trees at different places. sir told us the importance of the ceritificate provided by the nss as in coming days it will be beneficial for us.|
 |19/07/24| ***ER. KANWARDEEP KALRA*** | Mam told the students the journey from the campus to cooperative she showed us a role play in which the candidates gave interview to the companies and she explained us the mistakes done by the candidates. after that she talked about the dressing sense of an engineer and the soft skills which are as much important as the studies. then she showed a ppt describing each and every important skills needed in our life  according to her smile on face is very crucial in every situation like in the interview. then again she showed the role play again in which the students improved themselves and behave well|
-|19/07/24|
+|19/07/24| ***JASWINDER SINGH***
 
 
