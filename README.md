@@ -31,3 +31,7 @@
 |24/07/24|***CAUSMIC CLUB***|this is one of the reputed club in the college. the team of the club showed us a ppt in which there was information about the foundation,team members,the categories of club, main events,glimpses of events, the magazine of college etc. there are basically 4 categories in this club first is event management,second is technical,third is creative and the last one is anchoring team.this a golden chance for everone to join this club and boost confidence level among them and also learning soft skills side by side.|
 |25/07/24| ***PROF JASMEEN KAUR***| Man taught us about the uhv subject in which she mainly focuses on the topic harmony in the family and society. there are 9 feelings in a relationship. she told us the importance of each and every feeling in a simple manner and ask some questions to the students in which the students participated interactively.|
 |25/07/24|***MR SUMEET***|He is our senior from 2nd year CSE branch. sir is very nice and friendly in nature.he told us all about the college like bus pass, library pass, examination pattern, college website, clubs and socities, subjects which we will study in the first year. |
+
+
+
+
