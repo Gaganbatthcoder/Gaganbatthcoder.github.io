@@ -1,5 +1,5 @@
 # Gaganbatthcoder.github.io
-##activity report of student induction program 2024
+##**ACTIVITY REPORT OF STUDENT INDUCTION PROGRAMME 2024**
 |**DATE**|**NAME OF PERSON**|**DETAIL**|
 | -------- | ---------- | ------|
 |11/07/24| ***DR ARVIND DHINGRA*** | Sir give a being description on the various clubs of college which are either credited or non credited they told us about the activities done in each club like cosmic club, ncc,nss, cultural etc. sir has well explained this with a beautiful powerpoint presentation. then for the entertainment sir played a game with students in which they have to hold each others hand and have to escape without leaving hands. In this game the boys team won and then sir told everyone on stage to introduces themself. Sir id very nice and frinedly.|
