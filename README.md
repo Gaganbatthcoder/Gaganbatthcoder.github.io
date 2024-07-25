@@ -27,5 +27,6 @@
 |24/07/24|***MR GAURAVDEEP SINGH***| sir is a really a great personality. he runs a charity named as "INITIATORS OF CHANGE". sir told us about his own personal journey from standard 1st to now. he told us that how the failure guy of that time is now well known in the society. sir explained us that all we are same and the situations that we faced are also same so when we are sad we should always share about it.he told us 3 main teaching:- find the good qualities in yourself,everyone has the power like a universe the found it they own it,|
 |24/07/24|***ER LAKHVEER SINGH***| sir gave knowledge to us about a website swayam in which he told mainly about NPTEL(National Programme on Technology Enhanced Learning) a fully trusted site for learning new skills and clearing the doubts. sir teaches us how to register yourself in this and how can we join any course in it.|
 |24/07/24|***CAUSMIC CLUB***|
+|-----|-----|-----|
 |25/07/24| ***PROF JASMEEN KAUR***| Man taught us about the uhv subject in which she mainly focuses on the topic harmony in the family and society. there are 9 feelings in a relationship. she told us the importance of each and every feeling in a simple manner and ask some questions to the students in which the students participated interactively.|
 |25/07/24|***SUMEET***|
